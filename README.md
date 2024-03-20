@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Cheatcode33
+- 👋 Hi, I’m @Darshana2805
 - 👀 I’m interested in Music,reading and doing nothing
 - 🌱 I’m currently learning data analysis
 - 💞️ I’m looking to collaborate on projects
